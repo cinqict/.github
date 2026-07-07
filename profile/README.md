@@ -1,1 +1,1 @@
-More information coming soon!π
+More information coming soon!
